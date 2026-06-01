@@ -272,7 +272,7 @@ Exploring Generative AI, Agentic AI, Retrieval Systems, Scientific Discovery Too
 
 GitHub: https://github.com/MinervaRose
 
-LinkedIn: https://www.linkedin.com/in/sabrina-palis/
+LinkedIn: https://www.linkedin.com/in/sabrina-jp/
 
 ---
 
